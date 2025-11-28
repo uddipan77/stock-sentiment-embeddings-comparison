@@ -394,7 +394,7 @@ Uddipan Basu Bir
 
 ## Contact & Support
 
-For questions, issues, or contributions, please reach out to ai4uddipan@gamil.com
+For questions, issues, or contributions, please reach out to ai4uddipan@gmail.com
 
 ---
 
